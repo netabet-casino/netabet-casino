@@ -1,4 +1,4 @@
-# NetaBet Casino - ¡Gana a lo Grande! | Slots & Casino en Vivo 2024
+# NetaBet Casino - ¡Gana a lo Grande! | Slots & Casino en Vivo 2025
 
 Bienvenido a NetaBet Casino, donde la emoción del juego se encuentra con la excelencia del entretenimiento. Descubre un mundo de posibilidades con nuestra amplia selección de juegos de casino, slots exclusivos y experiencias de casino en vivo incomparables.
 
